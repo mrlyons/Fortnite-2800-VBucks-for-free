@@ -2,7 +2,7 @@
 
 Are you a Fortnite fan looking to level up your gameplay without spending a dime? You're in luck! In this article, we’ll show you how to claim **2800 V-Bucks for free** and explore tips and tricks to make the most of your experience in the game. Whether you're a seasoned player or new to the Fortnite world, you’ll find valuable insights here. Let’s jump right in! 🎁 We're giving away free V-Bucks, Fortnite Gifts and more! Click here to join in! 🎁
 
-## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## Claim Your 2800 Free V-Bucks
 
